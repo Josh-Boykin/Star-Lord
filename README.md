@@ -9,5 +9,5 @@
 
 - 💞️ I’m looking to collaborate on ways to be more effective in the field 
 
-- 📫 Reach out to me on <a href="https://https://www.linkedin.com/in/josh-boykin/">LinkedIn!</a> 
+- 📫 Reach out to me on <a href="https://https://linkedin.com/in/josh-boykin/">Linkedin!</a> 
 
